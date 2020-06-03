@@ -1,1 +1,0 @@
-# ecolab-next-level-week
